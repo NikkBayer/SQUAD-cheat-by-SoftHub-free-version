@@ -1,4 +1,4 @@
-# 🎯 **Universal Cheat for Squad by Arcane**
+# 🎯 **Universal Cheat for Squad by SoftHub**
 ![1](https://github.com/user-attachments/assets/3ca725d6-8323-4710-ba1e-d9b82fce79fa)
 
 ---
